@@ -1,4 +1,4 @@
-hey girls i love yuri and slam dunk and fast n furious btw
+diagnosed with beautiful princess disorder 
 
 ![9FC3608E-82AD-4A4E-A5D7-B865DDD08FEE](https://github.com/user-attachments/assets/a3c8f77c-8909-41b8-937f-2a8b6d74bec2)
 ![D5EC07D3-6443-4D70-983C-0A64C4C919BB](https://github.com/user-attachments/assets/0ae7c699-e2f8-4b16-8d3b-bb925336aacf)
