@@ -14,6 +14,9 @@ diagnosed with beautiful princess disorder
 ![8B0336F1-F5C8-4D76-BEB5-3B2F214E2DEB](https://github.com/user-attachments/assets/b3897531-2455-4ea4-9270-041fb2781c62)
 ![0E1E1B58-4C26-4BB1-98C3-10045189C380](https://github.com/user-attachments/assets/882bcaaa-b1b5-4c8b-a5d1-b3bba90af6f7)
 ![3F526797-28EE-4C43-B748-565AC89739A0](https://github.com/user-attachments/assets/5507ba25-53d1-4eda-b344-2a66bf9d5cb5)
-![192F9899-8DFF-4E40-B58D-0E70A7F74FFE](https://github.com/user-attachments/assets/9e5ddf60-42e1-4d65-b666-3729648de583)
+![192F9899-8DFF-4E40-B58D-0E70A7F74FFE](https://github.com/user-attachments/assets/9e5ddf60-42e1-4d65-b666-3729648de583)![1000014375](https://github.com/user-attachments/assets/9023cf8e-45bc-494a-acf6-94bc07199a2c)
+![1000014360](https://github.com/user-attachments/assets/aae9040d-7193-4d1e-839e-35b8f607c3ff)
+![1000014367](https://github.com/user-attachments/assets/c4dfb745-0089-4796-9066-ca19f236a7ee)
+
 
 
