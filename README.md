@@ -1,2 +1,2 @@
-![1000014800](https://github.com/user-attachments/assets/19c00be6-58af-451a-9d41-1bce8ffea53c)
-desperately looking for my ganyu 💔
+![1000015663](https://github.com/user-attachments/assets/b633541c-ad67-4453-bfeb-b75aa8c94f17)
+heh...me and who
