@@ -1,3 +1,3 @@
-![1000016614](https://github.com/user-attachments/assets/5f282031-e4fb-4f86-bae0-00bbf397e259)
+![1000017192](https://github.com/user-attachments/assets/9c9a471a-ac30-4e1e-9009-da0c2a694634)
 
-me and my beautiful wife
+me and my wif #yuri
