@@ -1,3 +1,3 @@
-![1000016648](https://github.com/user-attachments/assets/5c0d96a7-f7c5-44be-8be7-6f44595b949f)
-my name's raven, now where is my beautiful wife oak casket? hmu girlie~~
-#oakven 
+![1000016614](https://github.com/user-attachments/assets/5f282031-e4fb-4f86-bae0-00bbf397e259)
+
+me and my beautiful wife
