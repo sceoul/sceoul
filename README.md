@@ -1,3 +1,4 @@
-![1000017192](https://github.com/user-attachments/assets/9c9a471a-ac30-4e1e-9009-da0c2a694634)
+![1000018067](https://github.com/user-attachments/assets/5cf61502-c923-45f1-90db-38feb3c484d0)
 
-me and rei!!! i love my wife #yuri
+
+me and rei #yuri
