@@ -1,4 +1,4 @@
-![1000018067](https://github.com/user-attachments/assets/5cf61502-c923-45f1-90db-38feb3c484d0)
+![1000019700](https://github.com/user-attachments/assets/6ce8e3c6-ca12-4dd4-ace2-5cca56bb7b60)
 
 
-me and rei #yuri
+me and rei #ilovemygf
