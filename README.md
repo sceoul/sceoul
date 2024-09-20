@@ -1,4 +1,3 @@
-![1000019700](https://github.com/user-attachments/assets/6ce8e3c6-ca12-4dd4-ace2-5cca56bb7b60)
+![1000019943](https://github.com/user-attachments/assets/5d9c64e1-c22e-46dc-a753-c82a60b7e2ec)
 
-
-me and rei #ilovemygf
+me and my rei, MY LITTLE SNOOKEEEERS ugh you're sososo pretty i hate you i will tongue you #ilovemygf 🤍🤍
