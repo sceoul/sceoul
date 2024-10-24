@@ -1,2 +1,2 @@
-![1000020990](https://github.com/user-attachments/assets/4732abd9-3bdd-4f1f-b52d-b8198e224c06)
-ME IRL^
+![1000022453](https://github.com/user-attachments/assets/ae372d54-d95e-40f1-a811-91d83aed44e4)
+shout out to aizen
