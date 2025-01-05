@@ -4,4 +4,3 @@
 
 looking for a masc women or a hot fem dominate mommy to call me a good girl
 
-[atabook](https://sceoul.atabook.org/)
