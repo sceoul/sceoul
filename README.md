@@ -3,5 +3,6 @@
 ![1000027847](https://github.com/user-attachments/assets/27d20544-7bee-4383-a7c7-f610139deeab)![1000027898](https://github.com/user-attachments/assets/537f3b26-71ed-4cd7-b4ab-bd92715a1713)
 
 Hai im cool and thirst for women. Sit with me
+<br>– dc and ig: @vamptical. i accept requests
 
 [strawpage](https://icemop.straw.page)
