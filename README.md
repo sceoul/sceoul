@@ -1,5 +1,6 @@
-![1000029327](https://github.com/user-attachments/assets/f60c5541-b96b-4da3-8890-c32ec25bbbf3)
-![1000029435](https://github.com/user-attachments/assets/f9e2739f-e1d9-4cd1-9519-81a764f9ac52)
+![1000029439](https://github.com/user-attachments/assets/52f9d406-a64f-44d7-bd95-90c00e6e8242)
+![1000029429](https://github.com/user-attachments/assets/454740b7-3dc4-4f0c-a508-531c10dab8d2)
+
 
 @vamptical on ig i accept requests
 
