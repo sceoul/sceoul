@@ -1,4 +1,5 @@
 ![1000029439](https://github.com/user-attachments/assets/52f9d406-a64f-44d7-bd95-90c00e6e8242)
+
 ![1000029429](https://github.com/user-attachments/assets/454740b7-3dc4-4f0c-a508-531c10dab8d2)
 
 im cool and funny plz int w me 
