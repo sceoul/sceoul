@@ -1,6 +1,7 @@
-![1000029439](https://github.com/user-attachments/assets/52f9d406-a64f-44d7-bd95-90c00e6e8242)
+![5EC926B4-F24C-47D0-8869-F459F69F2E54](https://github.com/user-attachments/assets/333c8985-788d-4b1a-8c1a-e8bbf02fa5d4)
 
-![1000029429](https://github.com/user-attachments/assets/454740b7-3dc4-4f0c-a508-531c10dab8d2)
+![9405A26E-2928-4A03-A5AA-007B48CC5531](https://github.com/user-attachments/assets/66105073-fce4-4605-b234-a9dfd22fc178)
+
 
 im cool and funny plz int w me 
 
