@@ -2,7 +2,7 @@
 me and you<br>
 <br>yumei / irl name ok! i use feminine and gender neutral terms. im a girl kisser and i love yuri, im also seasian so i only know little english
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=47443d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=8a8a8a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 please dont be shy to int, i really really love friend making very much!! im lonely and don't have much friends to spend time with
 
