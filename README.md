@@ -8,7 +8,6 @@ please dont be shy to int, i really really love friend making very much!! im lon
 
 ![1000030365](https://github.com/user-attachments/assets/ef631420-2268-4484-a458-0f499079948e)
 
-read [this](https://icemop.straw.page) byi!<br>
 i don't necessarily have a DNI! just don't come off as a creep and don't make me mad purposefully ♡ i hide and block freely! don't push boundaries or i will severely dismember you medievally. nonconsensual rants are prohibited unless i consider you close
 
 ![1000030417](https://github.com/user-attachments/assets/60b92b23-55f8-49ac-a06a-f43ef10476f4)
