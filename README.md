@@ -1,4 +1,4 @@
-![1000031171](https://github.com/user-attachments/assets/61d23a23-1cc3-46d3-8619-34fd7c6d1be3)<p align='center'><img src=https://i.ibb.co/zRjmWCJ/IMG-7156.gif>.
+![1000031223](https://github.com/user-attachments/assets/d86a02fb-f9a4-4c7c-a911-8f546f8f9de6)<p align='center'><img src=https://i.ibb.co/zRjmWCJ/IMG-7156.gif>.
   ⧽ Y u m e i ! (玉梅)
   <br> ʚ she ◡ 14y ◡ les ɞ<br>
 
