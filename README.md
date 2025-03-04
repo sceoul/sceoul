@@ -1,4 +1,5 @@
-![1000031223](https://github.com/user-attachments/assets/d86a02fb-f9a4-4c7c-a911-8f546f8f9de6)<p align='center'><img src=https://i.ibb.co/zRjmWCJ/IMG-7156.gif>.
+![3DEA5440-B4FC-49F3-9D7D-4B73415BD1A6](https://github.com/user-attachments/assets/18da348b-65f6-4b3f-b3bf-7be625086a47)
+<p align='center'><img src=https://i.ibb.co/zRjmWCJ/IMG-7156.gif>.
   ⧽ Y u m e i ! (玉梅)
   <br> ʚ she ◡ 14y ◡ fil ɞ<br>
 
