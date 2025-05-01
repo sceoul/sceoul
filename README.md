@@ -1,2 +1,1 @@
-![1000033586](https://github.com/user-attachments/assets/d3f6a5ae-7b7e-4445-9407-5490e36be381)
-plz sit w me and say Hi
+![1000034196](https://github.com/user-attachments/assets/34f2e6a6-7017-4d49-994c-ae925cf6862a)
