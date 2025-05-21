@@ -7,14 +7,15 @@
 </div>
 
 <p align="center">
-i&nbsp;&nbsp;move&nbsp;&nbsp;the&nbsp;&nbsp;universe&nbsp;&nbsp;and&nbsp;&nbsp;change&nbsp;&nbsp;fate&nbsp;&nbsp;.
+"&nbsp;&nbsp;so&nbsp;&nbsp;if&nbsp;&nbsp;theres&nbsp;&nbsp;a&nbsp;&nbsp;beginning,&nbsp;&nbsp;is&nbsp;&nbsp;there&nbsp;&nbsp;an&nbsp;&nbsp;end?&nbsp;&nbsp;"
 </p>
 
 <p align="center">
-  <a href="https://sceoul.atabook.org/">ᴀᴛᴀʙ</a> ♡ 
-  <a href="https://en.pronouns.page/@sceoul">ᴘʀɴs</a> ♡ 
-  <a href="https://rinkouhai.straw.page">sᴛʀᴡ</a>
+ ʚ <a href="https://sceoul.atabook.org/">ᴀᴛᴀʙ</a>&nbsp;&nbsp;ꔛ&nbsp;&nbsp;
+  <a href="https://en.pronouns.page/@sceoul">ᴘʀɴs</a>&nbsp;&nbsp;ꔛ&nbsp;&nbsp;
+  <a href="https://rinkouhai.straw.page">sᴛʀᴡ</a> ɞ
 </p>
+
 <div align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=2549c2&bar_color_cover=false" alt="spotify-github-profile" />
