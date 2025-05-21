@@ -1,4 +1,7 @@
 <div align="center">
+  <img src="https://cdn.discordapp.com/emojis/1113884208084029450.webp?size=40&quality=lossless" alt="Centered Image" width="30" />
+</div>
+<div align="center">
   <img src="https://github.com/user-attachments/assets/f349c6d1-d526-40e4-a018-77ed3b72d632" alt="1000037430" width="80" />
   <img src="https://github.com/user-attachments/assets/1092a6a3-0933-45bd-8fc1-ec3bfb61bcd8" alt="1000037428" width="100" />
 </div>
