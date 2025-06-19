@@ -4,10 +4,10 @@
 </div>
 
 <div align="center" style="margin-top: 10px;">
-  <img src="https://files.catbox.moe/5vxjq3.png" width="130" style="margin: 10px;" />
-  <img src="https://files.catbox.moe/bd2y19.png" width="130" style="margin: 10px;" />
+  <img src="https://files.catbox.moe/5vxjq3.png" width="200" style="margin: 10px;" />
+  <img src="https://files.catbox.moe/bd2y19.png" width="200" style="margin: 10px;" />
   <p align="center">
-  <small>"without&nbsp;&nbsp;aoi,&nbsp;&nbsp;i&nbsp;&nbsp;wouldn't&nbsp;&nbsp;even&nbsp;&nbsp;be&nbsp;&nbsp;be.&nbsp;&nbsp;with&nbsp;&nbsp;rondo."</small>
+  <small>"without&nbsp;&nbsp;aoi,&nbsp;&nbsp;i&nbsp;&nbsp;wouldn't&nbsp;&nbsp;even&nbsp;&nbsp;be&nbsp;&nbsp;&nbsp;with&nbsp;&nbsp;rondo."</small>
 </p>
   <img src="https://files.catbox.moe/ryl2t8.jpg" />
 </div>
