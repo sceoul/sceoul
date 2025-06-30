@@ -1,4 +1,4 @@
-blah lah lah  [atab](https://sceoul.atabook.org/) [strw](https://rinkouhai.straw.page/) [prns](https://en.pronouns.page/@sceoul)
+blah lah lah  [atab](https://sceoul.atabook.org/) [strw](https://rinkouhai.straw.page/) [prns](https://en.pronouns.page/@sceoul) [guns](https://guns.lol/sloth67)
 
 <div align="center">
 
