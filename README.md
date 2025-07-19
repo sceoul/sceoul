@@ -1,9 +1,7 @@
 blah lah lah  [atab](https://sceoul.atabook.org/) [strw](https://rinkouhai.straw.page/) [prns](https://en.pronouns.page/@sceoul) [guns](https://guns.lol/sloth67)
 
-
-
-https://github.com/user-attachments/assets/b5999015-aab4-4c95-9db0-36277c7aaeb8
-
+promotion. simple but im proud of it 🥹
+![1000046753](https://github.com/user-attachments/assets/631bd879-a400-4c88-8f3f-eaf0539ae985)
 
 
 <div align="center">
