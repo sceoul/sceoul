@@ -1,7 +1,10 @@
 blah lah lah  [atab](https://sceoul.atabook.org/) [strw](https://rinkouhai.straw.page/) [prns](https://en.pronouns.page/@sceoul) [guns](https://guns.lol/sloth67)
 
-... promoting my art. #proud
-![1000046725](https://github.com/user-attachments/assets/931c384a-f6b0-4ef5-b80a-79e21acf2955)
+
+
+https://github.com/user-attachments/assets/b5999015-aab4-4c95-9db0-36277c7aaeb8
+
+
 
 <div align="center">
 
