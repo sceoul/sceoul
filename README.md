@@ -1,8 +1,7 @@
 [atab](https://sceoul.atabook.org/) [guns](https://guns.lol/sloth67)
 
-<div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=0000ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+https://github.com/user-attachments/assets/b0487cad-1ce9-45f1-a317-ca8e3fc6fc09
 
-</div>
+
 
