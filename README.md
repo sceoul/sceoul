@@ -1,4 +1,4 @@
-for more informations <br>[atab](https://sceoul.atabook.org/) [strw](https://rinkouhai.straw.page/) [prns](https://en.pronouns.page/@sceoul) [guns](https://guns.lol/sloth67)
+[atab](https://sceoul.atabook.org/) [guns](https://guns.lol/sloth67)
 
 <div align="center">
 
