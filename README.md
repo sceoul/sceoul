@@ -1,4 +1,4 @@
-[atab](https://sceoul.atabook.org/) [guns](https://guns.lol/sloth67)
+[atab](https://sceoul.atabook.org/) [prns](https://en.pronouns/@sceoul) [guns](https://guns.lol/sloth67)
 
 
 
