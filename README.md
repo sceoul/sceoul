@@ -1,5 +1,2 @@
 [journal](https://rentry.co/freakgothmommy)
-![1000047708](https://github.com/user-attachments/assets/81531e21-d414-499a-87e3-fbdb2ac46423)
-
-
-
+![1000048044](https://github.com/user-attachments/assets/0508a887-9642-4e9c-81a9-516681ab3548)
