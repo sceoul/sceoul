@@ -1,2 +1,6 @@
 [journal](https://rentry.co/freakgothmommy)
-![1000048044](https://github.com/user-attachments/assets/0508a887-9642-4e9c-81a9-516681ab3548)
+<div align="center">
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color=0000ff)](https://github.com/kittinan/spotify-github-profile)
+
+</div>
