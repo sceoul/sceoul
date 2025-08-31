@@ -1,2 +1,1 @@
-[journal](https://rentry.co/freakgothmommy)
-![1000046134](https://github.com/user-attachments/assets/df49b10b-f01c-49db-bb89-aafe62eb2d61)
+we are going to need a lot of peanut butter and butter! i love putting peanut butter on my peanut butter. the alamo! does anyone remember the alamo? i'm sorry, i don't remember. perhaps none of us do. hey is that jon? 
