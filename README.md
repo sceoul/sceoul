@@ -1,2 +1,1 @@
-![1000048618](https://github.com/user-attachments/assets/8a25647b-5324-4a4c-b7a6-f43bc623b06a)
-stay humble twin
+![1000048868](https://github.com/user-attachments/assets/f5996f67-40ba-4e99-a68f-01b30637a225)
