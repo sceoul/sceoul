@@ -1,1 +1,1 @@
-![1000049016](https://github.com/user-attachments/assets/ea0bda85-173d-4435-8d71-6fe31de25c0a)
+follow @hufeiyuri on tt<br>i like yuri and rhythm games<br><br>be aware of my odd behaviours. i show hostility and i am very much an argumentative person. best thing to do is to avoid me especially brainwashed religious people, you are the most annoying person ever.
