@@ -1,3 +1,1 @@
-follow @hufeiyuri on tt<br>i like yuri and rhythm games<br><br>be aware of my odd behaviours. i show hostility and i am very much an argumentative person. best thing to do is to avoid me especially brainwashed religious people, you are the most annoying person ever. <br>
-
-https://rentry.co/ex-oomfs<br>bye inactive
+follow @hufeiyuri on tt<br>i like yuri and rhythm games<br><br>be aware of my odd behaviours. i show hostility and i am very much an argumentative person. best thing to do is to avoid me especially brainwashed religious people, you are the most annoying person ever. 
