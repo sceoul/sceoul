@@ -1,1 +1,3 @@
+quit :)<br>https://rentry.co/buhbye
+
 my apologies i extend to those i have removed, yet what worth is there in keeping the name of ‘friend’ when silence has stretched between us for so long? without word or presence, we are not friends but mere acquaintances, shadows of what might have been. for friendship is no idle title, but a flame that must be tended, less it fade into ash.
