@@ -1,2 +1,1 @@
-jokeee i might jus be in hiatus..not to quit💔💔
-![1000009724](https://github.com/user-attachments/assets/f1af3e9f-3747-43cb-814e-d62eea4ff1a4)
+lent kenzue my acc so yeah, if u catch my ass running or jsu sitting around that's not me.<br><br>it's unlikely that im gonna return due to mental health problems so.. oke bye<br><br>┏⁠(⁠＾⁠0⁠＾⁠)⁠┛
