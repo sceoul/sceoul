@@ -1,1 +1,1 @@
-wooops siked,, i actually am back. Yea but i wont go on as much as i used to<br><br>kenzue still have full access<br><br>sorry i decided not to make any friends or rebuild relations on pt for some odd reason yall r so fucking annoying and overly sensitive it honestly pisses me off. im happily contented with my usual group of 3. u can still interact and be my acquaintance tho yea hope u understand, thanks
+wooops siked,, i actually am back. Yea but i wont go on as much as i used to<br><br>kenzue still have full access<br><br>
