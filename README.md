@@ -1,1 +1,1 @@
-wooops siked,, i actually am back. Yea but i wont go on as much as i used to<br><br>kenzue still have full access<br><br>
+![1000054099](https://github.com/user-attachments/assets/0446ed4f-2fb2-460f-bbba-e6552d7ba912)
