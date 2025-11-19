@@ -1,3 +1,1 @@
-hi kenshoe......miss u so much 🧐
-![1000053149](https://github.com/user-attachments/assets/e8688079-dba8-4912-b685-81c19bd89a84)
-https://mymissingrib.straw.page 💞💞
+![1000054125](https://github.com/user-attachments/assets/49ca4d57-6c76-4563-8d33-630a8fc18974)
