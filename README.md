@@ -1,6 +1,2 @@
-<p align="center">
-  <video src="https://github.com/user-attachments/assets/7f381482-d4ba-4609-bd0f-301280da9a14" 
-         width="500" 
-         controls>
-  </video>
-</p>
+![1000064522](https://github.com/user-attachments/assets/78e3b6bc-32ea-4b62-8ceb-fa10920b3e2d)
+mf acts like he did this all by himself thats a free rod and a 24hr level grind
