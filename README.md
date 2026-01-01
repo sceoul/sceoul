@@ -1,1 +1,1 @@
-my God is realer than yours. he says what I do is right, that I should fight if heaven pours.
+![1000065433](https://github.com/user-attachments/assets/d2a0d29a-2c96-4c97-bf6d-c5913b9620a9)
