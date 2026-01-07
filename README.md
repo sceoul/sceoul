@@ -1,2 +1,5 @@
+looking for friends must be financially and mentally stable enough to handle a freak like me dm for feet pics charging you none this january because i feeling joyous
 
-![1000065217](https://github.com/user-attachments/assets/4a5a365f-24df-44ee-b14c-0ed97b89eec1)
+no?
+
+nevermind no one wants you and i dont want you that much either wow your life sucks so bad man i cant even comprehend how useless you are to this world 
