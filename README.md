@@ -1,1 +1,3 @@
-![1000066259](https://github.com/user-attachments/assets/dbe4cfdc-e152-45f7-9441-8e48d185ddef)
+hi follow my insta for free feet
+![1000058882](https://github.com/user-attachments/assets/f2e4f4c7-3000-4c8b-a02a-2f4c035ff9f5)
+
