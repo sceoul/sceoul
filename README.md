@@ -1,4 +1,12 @@
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=sceoul&base=647&label=xxet&color=800000" alt="hi" />
+</p>
+
+
+
+
+
+<p align="center">
   <img src="https://github.com/user-attachments/assets/79d823d7-8f94-43b9-97c3-9f832b1040d5"
        width="300" />
 </p>
