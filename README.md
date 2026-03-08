@@ -1,5 +1,5 @@
 <p align="center">
-"let the others chatter and rage; the one who remains unshaken shows them their own weakness."
+"Let the others chatter and rage; the one who remains unshaken shows them their own weakness."
 </p>
 <br>
 <p align="center">
@@ -18,5 +18,5 @@
   </a>
 </p>
 <p align="center">
-ahh there we go!
+"I am he, Hell within mercy, as Almighty spawned in vain. Anguish on the bastard throne, I crucify the last martyr."
 </p>
