@@ -1,5 +1,9 @@
 <p align="center">
-"Let the others chatter and rage; the one who remains unshaken shows them their own weakness."
+<img width="350" height="250" alt="1000013289" src="https://github.com/user-attachments/assets/1ce73f9e-5220-45cf-af0e-7249a60f528d" />
+</p>
+
+<p align="center">
+rip goat
 </p>
 
 <br>
@@ -26,8 +30,4 @@
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
-</p>
-
-<p align="center">
-"I am he, Hell within mercy, as Almighty spawned in vain. Anguish on the bastard throne, I crucify the last martyr."
 </p>
