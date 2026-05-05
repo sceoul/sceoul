@@ -27,7 +27,7 @@ rip goat
 </p>
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z7y23exkyvthttazg65fswoo5m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=7a7a7a&bar_color_cover=false">
   </a>
 </p>
