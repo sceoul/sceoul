@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-rip goat
+everyone thinks that i'm a bad person, but i'm not really a person
 </p>
 
 <br>
