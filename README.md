@@ -1,9 +1,9 @@
 <p align="center">
-<img width="350" height="250" alt="1000013289" src="https://github.com/user-attachments/assets/1ce73f9e-5220-45cf-af0e-7249a60f528d" />
+<img width="350" height="350" alt="1000087801"src="https://github.com/user-attachments/assets/d5176271-bd13-4f80-af2b-5c43078cfea5" />
 </p>
 
 <p align="center">
-everyone thinks that i'm a bad person, but i'm not really a person
+  she smokes strawberry flavored nicotine
 </p>
 
 <br>
