@@ -1,9 +1,10 @@
 <p align="center">
-<img width="350" height="350" alt="1000087801"src="https://github.com/user-attachments/assets/d5176271-bd13-4f80-af2b-5c43078cfea5" />
+<img width="200" height="220" alt="ad17f768-c99b-45e3-a762-1034272a9caa-1_all_25900" src="https://github.com/user-attachments/assets/9e0d741c-d121-4cf4-ba0a-a6284c869288"
+/>
 </p>
 
 <p align="center">
-  When the func is evil and gangsta but I've got a cute side
+  dis me
 </p>
 
 <br>
